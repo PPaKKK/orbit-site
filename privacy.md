@@ -1,4 +1,4 @@
-# 오르빗 개인정보처리방침
+# 오르빗 개인정보처리방침 (Privacy Policy)
 
 [English version](#orbit-privacy-policy)
 

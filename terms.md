@@ -1,4 +1,4 @@
-# 오르빗 이용약관
+# 오르빗 이용약관 (Terms of Use)
 
 [English version](#orbit-terms-of-use)
 
